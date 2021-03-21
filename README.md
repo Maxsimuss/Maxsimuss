@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Maxsimuss / Maxsimus_ / Maxsimus#5855
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning minecraft
+- 💞️ I’m looking to collaborate on minecraft
+- 📫 How to reach me in minecraft
